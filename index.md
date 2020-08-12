@@ -1,4 +1,4 @@
-## Hiya! I am Valentina Chinnici! 
+## I am Valentina Chinnici! 
 
 ![Profile Pic](https://media-exp1.licdn.com/dms/image/C4D03AQFEvzQzTEqAiQ/profile-displayphoto-shrink_400_400/0?e=1602115200&v=beta&t=NWnsVdMJELjBANFGkI3Y-00XTcpT1Ke3fQK5O5aa76k)
 
